@@ -1,6 +1,7 @@
 # The-Future-of-Digital-Branding-Predictions-and-Trends
 
-https://elyts.in/Knowledge-Centre/image/cache/catalog/Blog/Digital%20Branding/The%20Future%20of%20Digital%20Branding-Predictions%20and%20Trends-Elyts-024-1140x300w.jpg
+![image](https://github.com/Mano-Elyts/The-Future-of-Digital-Branding-Predictions-and-Trends/assets/142087084/53c30004-0396-4c94-9fa1-f467850cc3ae)
+
 
 In the ever-evolving world of digital branding, staying ahead of the curve is crucial. Here, we explore key trends and predictions that will shape the future of digital branding.
 
